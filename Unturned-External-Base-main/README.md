@@ -5,4 +5,4 @@ https://www.unknowncheats.me/forum/other-fps-games/613227-unturned-external-base
 is the original post
 https://github.com/Coopyy/Unturned-External-Base
 is the original github credits to them
-![image](https://imgur.com/a/C7g3noo)
+https://imgur.com/a/C7g3noo
